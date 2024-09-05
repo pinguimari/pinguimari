@@ -7,7 +7,8 @@ Meu nome é Maria Clara Cardoso
 
 - ### Você pode entrar em contato comigo 
 
-mariaclarascardoso123@gmail.com
+00001119603419sp@al.educacao.sp.gov.br
+
 @pinguimari
 
 ![.](https://media.tenor.com/RZmZaTxTVOAAAAAM/froppy-asui-tsuyu.gif)
